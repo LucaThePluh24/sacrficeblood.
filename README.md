@@ -1,1 +1,2 @@
-# sacrficeblood.
+sacrfice your blood for me...
+you victim.
